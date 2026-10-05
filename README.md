@@ -1,3 +1,2 @@
 # RepositoryDiProva
 
-La mia repository
