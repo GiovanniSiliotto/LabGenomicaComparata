@@ -1,2 +1,2 @@
 # LabGenomicaComparata
-mai per caso nulla evolve
+evoluzione continua baby
